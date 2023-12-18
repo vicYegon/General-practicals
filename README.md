@@ -1,1 +1,1 @@
-These are general all rounded languages practices. You can chip in to add or correct anything. Welcome
+These are general all rounded language and coding experience practices. You can chip in to add or correct anything. Welcome
